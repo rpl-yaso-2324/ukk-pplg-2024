@@ -1,4 +1,4 @@
-# Simulasi UKK PPLG SMK Yadika Soreang 2024
+# UKK PPLG SMK Yadika Soreang 2024
 
 # SOAL PRAKTIK DEMONSTRASI
 
